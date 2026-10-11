@@ -2,13 +2,15 @@
 
 ## I. MỞ BÀI
 
-Có những tiếng gọi không bao giờ được đáp lại, và chính sự im lặng ấy trở thành nỗi đau dai dẳng nhất. "Cải ơi" của Nguyễn Ngọc Tư được dựng trên một tiếng gọi như vậy: ông Năm Nhỏ đi tìm đứa con gái bỏ nhà gần mười hai năm, cất tiếng gọi "Cải ơi" giữa những đoàn ca múa nhạc, giữa ngã ba Sương, giữa những chương trình truyền hình. Câu chuyện có nhiều tình tiết bi hài, có lúc làm người đọc bật cười, rồi lại khiến người đọc thắt lòng. Với lối kể đan xen giọng hài hước, mỉa mai và xót xa, Nguyễn Ngọc Tư đã biến một bi kịch gia đình thành bức tranh đầy ám ảnh về nỗi đau bị phơi bày và bị đem ra làm trò.
+Có những tiếng gọi không bao giờ được đáp lại, và chính sự im lặng ấy trở thành nỗi đau dai dẳng nhất. "Cải ơi" của Nguyễn Ngọc Tư được dựng trên một tiếng gọi như vậy: ông Năm Nhỏ đi tìm đứa con gái bỏ nhà gần mười hai năm, cất tiếng gọi "Cải ơi" giữa những đoàn ca múa nhạc, giữa ngã ba Sương, giữa những chương trình truyền hình. Câu chuyện có nhiều tình tiết bi hài, có lúc làm người đọc bật cười, rồi lại khiến người đọc thắt lòng. Truyện đứng vững trên chất hiện thực đời thường của những phận người trôi nổi ở miền sông nước, đồng thời thấm đẫm chiều sâu nhân bản khi đặt câu hỏi về tình thương và sự thừa nhận. Với lối kể đan xen giọng hài hước, mỉa mai và xót xa, Nguyễn Ngọc Tư đã biến một bi kịch gia đình thành bức tranh đầy ám ảnh về nỗi đau bị phơi bày và bị đem ra làm trò.
 
 ## II. THÂN BÀI
 
 ### 1. Khái quát cách kiến tạo truyện kể
 
-Truyện được kết cấu thành nhiều đoạn ngắn, mỗi đoạn là một cảnh: ông Năm Nhỏ đêm không ngủ, lời nhắn tìm con trên sân khấu, cuộc gặp với Diễm Thương, vụ ăn trộm trâu. Các cảnh không đi theo một trình tự tuyến tính mà được gắn bằng cùng một nỗi nhớ, cùng một tiếng gọi. Nhà văn không cần kể hết quá khứ để người đọc hiểu bi kịch; quá khứ mất đứa con được gợi lại qua vài chi tiết như đôi trâu, cây kẹp nhỏ, mớ dây thun khoanh, và người đọc tự ghép thành bức tranh hoàn chỉnh.
+Cốt truyện có một mạch chính khá rõ: hành trình gần mười hai năm đi tìm đứa con gái riêng của vợ, từ những ngày đầu bỏ xứ ra đi cho đến khi ông lập nghiệp ở ngã ba Sương. Mạch chính ấy đủ đơn giản để người đọc nắm được mục tiêu, nhưng lại giàu kịch tính nhờ những tình huống éo le: ông làm sai vặt trong đoàn ca múa nhạc, cất tiếng gọi trước đám đông, rồi đến tình tiết ăn trộm trâu để được đưa lên đài, nơi lời nhắn tìm con được phát đi. Tình huống ấy vừa mang nét nghịch lý, hài hước nhẹ, vừa phơi bày sự bế tắc của con người trước số phận.
+
+Mạch kể không đi theo trình tự thời gian thẳng. Hiện tại ở ngã ba Sương, với đoàn người lưu lạc như Thàn và Diễm Thương, được đan xen với quá khứ: cảnh mất đôi trâu, cảnh Cải bỏ nhà, nỗi oan ức và sự dằn vặt của người cha. Nhà văn không kể hết quá khứ; những chi tiết như đôi trâu, cây kẹp nhỏ, mớ dây thun khoanh được gợi lại đúng lúc, và người đọc tự ghép thành bức tranh hoàn chỉnh. Cách sắp đặt này làm nổi bật nỗi ám ảnh kéo dài suốt nhiều năm trong tâm trí nhân vật.
 
 ### 2. Người kể chuyện và ngôi kể
 
@@ -20,7 +22,7 @@ Người kể trong truyện là ngôi thứ ba, nhưng không đứng cách xa 
 
 ### 4. Lời trần thuật và giọng điệu kể chuyện
 
-Điểm đặc sắc nhất trong lời kể là giọng điệu đa thanh. Có giọng hài hước dân dã: "cười hề hề", "cười khơ khơ khơ", những tình tiết ông Năm bị người ta lừa, bị đem lên đài. Có giọng mỉa mai với báo đài, khi ông cố nói trọn lời nhắn mà đoạn ấy vẫn bị cắt. Nhưng khi chạm đến nỗi đau của người cha, giọng kể trầm xuống, chậm rãi, dồn nén: "Ông đau mà không nói được một lời." Ngôn ngữ Nam Bộ với nhiều từ láy như "khọm rọm", "xơ xác", "ngoi ngóp", "xa xắc" làm cho lời kể gần với đời sống, và cách viết nhiều câu dài không ngắt, nhiều dấu phẩy, phản ánh nhịp hối hả, rối rít của những người đang đi tìm một điều không chắc có.
+Điểm đặc sắc nhất trong lời kể là giọng điệu đa thanh. Có giọng hài hước dân dã: "cười hề hề", "cười khơ khơ khơ", những tình tiết ông Năm bị người ta lừa, bị đem lên đài. Có giọng mỉa mai với báo đài, khi ông cố nói trọn lời nhắn mà đoạn ấy vẫn bị cắt. Nhưng khi chạm đến nỗi đau của người cha, giọng kể trầm xuống, chậm rãi, dồn nén: "Ông đau mà không nói được một lời." Ngôn ngữ mang đậm tính khẩu ngữ Nam Bộ, giản dị và dân dã như lời ăn tiếng nói hằng ngày nhưng vẫn gợi hình và giàu cảm xúc. Những từ láy như "khọm rọm", "xơ xác", "ngoi ngóp", "xa xắc" làm cho lời kể gần với đời sống, và cách viết nhiều câu dài không ngắt, nhiều dấu phẩy, phản ánh nhịp hối hả, rối rít của những người đang đi tìm một điều không chắc có.
 
 ### 5. Cách tổ chức và dẫn dắt câu chuyện
 
