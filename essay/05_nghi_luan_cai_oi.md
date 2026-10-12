@@ -14,7 +14,7 @@ Mạch kể không đi theo trình tự thời gian thẳng. Hiện tại ở ng
 
 ### 2. Người kể chuyện và ngôi kể
 
-Người kể trong truyện là ngôi thứ ba, nhưng không đứng cách xa nhân vật. Người kể bám rất sát ông Năm Nhỏ, cảm được từng cơn nhớ, từng lần hi vọng rồi tắt lịm của ông. Đồng thời, người kể cũng xen vào những lời bình ngắn, đậm tính đối thoại với người đọc: "Như thế mà ông không thương nó sao? Như thế mà là không thương à???", hay "ai mà giàu tưởng tượng vậy không biết?" Những lời ấy vừa thể hiện sự đồng cảm, vừa mang chút châm biếm trước thói đồn đãi của người đời. Chính sự xen giữa ấy làm cho người kể vừa gần gũi, vừa có khoảng cách, đủ để người đọc vừa xót xa, vừa tỉnh táo nhìn lại.
+Người kể trong truyện là ngôi thứ ba, nhưng không đứng cách xa nhân vật. Người kể bám rất sát ông Năm Nhỏ, cảm được từng cơn nhớ, từng lần hi vọng rồi tắt lịm của ông, và đôi khi đi vào cả suy nghĩ của Thàn. Riêng Diễm Thương thì được giữ ở khoảng cách: ngay từ đầu truyện đã nói rằng không ai đoán được nó nghĩ gì, và suốt truyện nhân vật này hiện ra qua lời nói và hành động, không qua nội tâm. Đồng thời, người kể cũng xen vào những lời bình ngắn, đậm tính đối thoại với người đọc: "Như thế mà ông không thương nó sao? Như thế mà là không thương à???", hay "ai mà giàu tưởng tượng vậy không biết?" Những lời ấy vừa thể hiện sự đồng cảm, vừa mang chút châm biếm trước thói đồn đãi của người đời. Chính sự xen giữa ấy làm cho người kể vừa gần gũi, vừa có khoảng cách, đủ để người đọc vừa xót xa, vừa tỉnh táo nhìn lại.
 
 ### 3. Điểm nhìn trần thuật linh hoạt
 
