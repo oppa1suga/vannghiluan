@@ -18,19 +18,19 @@ Người kể là ngôi thứ ba nhưng gần gũi với nhân vật. Người k
 
 ### 3. Điểm nhìn trần thuật linh hoạt
 
-Điểm nhìn trong truyện liên tục dịch chuyển. Có lúc người đọc đứng cùng ông Năm, cảm nhận nỗi chết điếng khi nhìn chiếu gối thênh thang. Có lúc điểm nhìn đứng ở phía người ngoài: "Người ta còn đồn đãi ông giết con nhỏ rồi lấp ở một chỗ đất nào, họ kìn kìn lại coi". Đến đoạn thằng Thàn và Diễm Thương, điểm nhìn chuyển sang hai người trẻ, để người đọc thấy nỗi tủi thân của những kẻ "người ta đã quăng ở đây mười tám năm". Sự dịch chuyển này khiến câu chuyện không chỉ là nỗi đau của một người cha, mà là nỗi đau nhiều lớp, được soi từ nhiều phía.
+Điểm nhìn dịch chuyển giữa ông Năm Nhỏ và những người ngoài. Có lúc người đọc đứng cùng ông để cảm nỗi đau mất con; có lúc ông hiện ra qua đồn đãi của dân làng. Khi nhìn sang Thàn, điểm nhìn đi vào nỗi tủi của người trẻ lưu lạc. Nhờ vậy, bi kịch hiện ra nhiều lớp, không chỉ là nỗi đau của một người cha.
 
 ### 4. Lời trần thuật và giọng điệu kể chuyện
 
-Điểm đặc sắc nhất trong lời kể là giọng điệu đa thanh. Có giọng hài hước dân dã: "cười hề hề", "cười khơ khơ khơ", những tình tiết ông Năm bị người ta lừa, bị đem lên đài. Có giọng mỉa mai với báo đài, khi ông cố nói trọn lời nhắn mà đoạn ấy vẫn bị cắt. Nhưng khi chạm đến nỗi đau của người cha, giọng kể trầm xuống, chậm rãi, dồn nén: "Ông đau mà không nói được một lời." Ngôn ngữ mang đậm tính khẩu ngữ Nam Bộ, giản dị và dân dã như lời ăn tiếng nói hằng ngày nhưng vẫn gợi hình và giàu cảm xúc. Những từ láy như "khọm rọm", "xơ xác", "ngoi ngóp", "xa xắc" làm cho lời kể gần với đời sống, và cách viết nhiều câu dài không ngắt, nhiều dấu phẩy, phản ánh nhịp hối hả, rối rít của những người đang đi tìm một điều không chắc có.
+Giọng điệu trong truyện đa thanh. Giọng hài dân dã và mỉa mai báo đài xen với giọng trầm xuống khi chạm nỗi đau của người cha: "Ông đau mà không nói được một lời." Khẩu ngữ Nam Bộ với các từ láy như "khọm rọm", "xơ xác" làm lời kể gần đời sống và gợi hình.
 
 ### 5. Cách tổ chức và dẫn dắt câu chuyện
 
-Cốt truyện được dẫn dắt bằng một tiếng gọi lặp đi lặp lại: "Cải ơi!" xuất hiện ở mở đầu, giữa truyện và gần cuối truyện. Tiếng gọi ấy như nhịp trống đi suốt câu chuyện, và đến cuối chỉ còn là "CẢI ƠI…", một tiếng gọi không có ai đáp. Điểm nhấn của truyện là cảnh Diễm Thương nhận mình là Cải, rồi lại nói "tui giỡn đó". Cảnh này đẩy hi vọng của ông Năm lên cao rồi dập tắt đột ngột, và người đọc nhận ra sự trớ trêu: một người cha không nhận ra con mình, còn người con thì dùng sự nhận nhầm để trêu đùa. Cuối cùng, tình tiết ăn trộm trâu để được lên đài đặt nỗi đau của ông Năm vào thế bi hài tột độ, và truyện khép lại bằng tiếng gọi không được đáp.
+Tiếng gọi "Cải ơi" lặp lại từ đầu đến cuối như một nhịp trống, và cuối truyện chỉ còn là một tiếng gọi không ai đáp. Điểm nhấn là cảnh Diễm Thương nhận mình là Cải rồi nói đùa, khiến hi vọng của ông Năm bị dập tắt đột ngột. Tình tiết ăn trộm trâu để được lên đài đẩy nỗi đau của ông vào thế bi hài.
 
 ### 6. Đánh giá chung về nghệ thuật kể chuyện
 
-Nghệ thuật kể chuyện trong "Cải ơi" được tạo nên từ sự kết hợp giữa ngôi kể thứ ba bám sát nhân vật, điểm nhìn đa chiều, giọng điệu đa thanh và cấu trúc lặp lại của tiếng gọi. Các yếu tố ấy không tách rời mà cùng khắc họa một người cha bị đẩy vào vòng xoáy của đồn đãi, của truyền thông và của sự vô cảm. Qua cách kể ấy, Nguyễn Ngọc Tư không chỉ kể về một đứa trẻ bỏ nhà, mà còn đặt câu hỏi về cách xã hội nhìn nỗi đau của người khác: đâu là thương, đâu là coi thường, và khi nỗi đau bị đem ra làm trò thì ai còn thực sự nghe tiếng gọi.
+Nghệ thuật kể chuyện trong "Cải ơi" kết hợp ngôi kể bám sát nhân vật, điểm nhìn đa chiều, giọng điệu đa thanh và tiếng gọi lặp lại. Qua đó, truyện đặt câu hỏi về cách xã hội nhìn nỗi đau của người khác: khi nỗi đau bị đem ra làm trò thì ai còn thực sự nghe tiếng gọi.
 
 ## III. KẾT BÀI
 
